@@ -1,0 +1,1 @@
+# letsc_competative
